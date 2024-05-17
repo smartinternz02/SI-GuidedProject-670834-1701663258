@@ -19,4 +19,4 @@ comprehensive understanding of water quality dynamics is essential, requiring ad
 in technology, improved monitoring systems, and interdisciplinary collaborations. These 
 efforts are crucial for better environmental sustainability, protection of public health, and 
 effective water resource management strategies 
-Project demonstration video link: 
+Project demonstration video link: https://drive.google.com/file/d/1heBCD_ZHAty1VULPzaGdFGYF6qo__uBe/view?usp=drive_link
